@@ -1,1 +1,0 @@
-# VOI_SARS-CoV-2
